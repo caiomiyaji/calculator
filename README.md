@@ -14,4 +14,4 @@
 
 ## 😎 Contact me:
 
-c.hideki@hotmail.com
+c.hidekimiyaji@gmail.com
